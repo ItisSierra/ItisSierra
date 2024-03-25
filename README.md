@@ -7,7 +7,7 @@ About me
 
 🎓 B.A in Marketing
 
-📈 creator of the victory edit and find me here: Sierra Smith's
+📈 Creator of the Victory Edit and My personal brand: Sierra Smith's
 
 ❤️ 🎵 I love music and transforming digital experiences into beautiful creations
 

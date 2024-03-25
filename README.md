@@ -1,5 +1,5 @@
 
-I'm a self-taught creative software programmer.  
+I'm a self-taught creative software engineer.  
 
 About me
 

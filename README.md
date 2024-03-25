@@ -4,6 +4,7 @@ I'm a self-taught creative software programmer.
 About me
 
 💼 Project Manager, UX Designer
+
 🎓 B.A in Marketing
 
 📈 creator of the victory edit and find me here: Sierra Smith's

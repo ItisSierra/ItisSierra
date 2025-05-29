@@ -3,11 +3,9 @@ I'm a self-taught software engineer.
 
 About me
 
-💼 Project Manager, UX Designer
+💼 UX Designer, PMP
 
 🎓 B.A in Marketing
-
-📈 Creator of the Victory Edit and My Personal Brand: Sierra Smith's Design House 
 
 ❤️ 🎵 I love music and transforming digital experiences into beautiful creations
 
